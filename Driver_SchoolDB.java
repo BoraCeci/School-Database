@@ -1,9 +1,8 @@
 
-// Attached are the links of my videos. Please let me know if there is any questions//
+// Attached are the links of my video presentation. Please let me know if there is any questions//
 // I hope you enjoy it!//
 
 //(https://youtu.be/LgXzP61pjag)// Full Video 1//
-//(https://youtu.be/5GEYiONs2ew)// Full Video(just in case this doesn't work)//
 //(https://youtu.be/jIW-e7YJIvM)// Added Video//
 
 
